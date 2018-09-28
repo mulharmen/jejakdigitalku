@@ -1,2 +1,3 @@
 # jejakdigitalku
 pencarian yang tak pernah padam
+Aku adalah orang yang penuh dengan rasa penasaran terhadap hal-hal baru terutama yang menyangkaut dengan ilmu pengetahuan. lebih dari separuh hidupku aku jalani dengan mencari dan mempelajari hal-hal baru terutama yang menyangkut pemograman komputer. Memenuat sesuatu berjalan otmatis sesuai dengan yang aku rencanakan (program) sungguh memberikan kepuasan tersendiri buatku. Walaupun aku tidak pernah sekolah khusus untuk komputer, ketertarikanku terhadap hal ini seakan tak pernah padam, bahkan sampai usiaku mendekati senja... yang jelas aku sangat mencintai hal ini dan aku menemukan kebahagian dengannya....
